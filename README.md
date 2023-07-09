@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JhnyProh
 - 👀 I’m interested in coding also making money online
-- 🌱 I’m currently learning Barchelor of compuyer science
+- 🌱 I’m currently learning Barchelor of computer science
 - 💞️ I’m looking to collaborate on ideas and coding
 - 📫 How to reach me jhnarnold@gmail.com
 
